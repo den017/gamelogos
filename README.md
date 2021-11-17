@@ -1,5 +1,7 @@
 # Обновления и новые сообщения
 
+[jsprav.ru](https://moskva1.jsprav.ru/magazinyi-i-apteki-lekarstvennyih-trav/entsiklopediia-trav/)  
+[orgsinfo.ru](https://moscow.orgsinfo.ru/company/3531609-enciklopediya-trav)  
 [bcme.ru](https://bcme.ru/jenciklopedija_lekarstvennykh_rastenijj_142814.html)  
 [jazi.ru](https://jazi.ru/msk/orgs/59005)  
 [zinzen.ru](https://zinzen.ru/%D1%8D%D0%BD%D1%86%D0%B8%D0%BA%D0%BB%D0%BE%D0%BF%D0%B5%D0%B4%D0%B8%D1%8F-%D0%BB%D0%B5%D0%BA%D0%B0%D1%80%D1%81%D1%82%D0%B2%D0%B5%D0%BD%D0%BD%D1%8B%D1%85-%D1%80%D0%B0%D1%81%D1%82%D0%B5%D0%BD%D0%B8%D0%B9/)  
